@@ -1,1 +1,0 @@
-# Pharmanews-App
